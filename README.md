@@ -3,3 +3,7 @@
 Pham Van Sang Pham Van Truong
 
 pham van sung truong thi ngan
+
+sk hynix
+samsung
+micron
